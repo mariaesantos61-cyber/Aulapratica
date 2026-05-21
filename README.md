@@ -1,3 +1,0 @@
-﻿# Aulapratica
-
-# Aulapratica
